@@ -1,5 +1,5 @@
-# 💫 About Me:
-FSI64X - Customizations<br>High-Quality Aesthetics 
+# F S I 6 4 X
+Customizations<br>High-Quality Aesthetics 
 
 
 ## 🌐 Socials:
